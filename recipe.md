@@ -63,3 +63,4 @@ This recipe makes a three-layer celebration cake with a caramel filling between 
 13. Decorate the cake with chocolate curls.
 
 14. Add a drizzle of salted caramel sauce just before serving.
+15. BE HAPPY EVERY SINGLE DAY
